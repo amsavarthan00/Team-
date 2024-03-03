@@ -1,2 +1,2 @@
 # Team-
-www.QR scan.com
+www.QR SCAN.COM
